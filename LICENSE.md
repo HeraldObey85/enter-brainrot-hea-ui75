@@ -1,4 +1,4 @@
-#  
+#  enter brainrot heads Script hidden is the best enter brainrot heads Script, featuring unlimited stamina and teleport. Safe and powerful for all your
 
 
 
